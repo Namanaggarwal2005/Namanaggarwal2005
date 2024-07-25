@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on projects that help me to learn more about the art of programming by general. I would like to contribute in Java related projects predominantly.
 - 📫 How to reach me :
 - Linkedin Profile: www.linkedin.com/in/naman-aggarwal-627206275
-- Mail id:namanaggarwal98124@gmail.com
+- Mail id: namanaggarwal98124@gmail.com
 - 😄 Pronouns: He/Him
 - ⚡ Interests (personal): I love to eat 😋.  
 
